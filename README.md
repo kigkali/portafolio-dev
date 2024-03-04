@@ -1,4 +1,5 @@
-![image](https://github.com/kigkali/portafolio-dev/assets/112664542/cce5cdf4-e7b1-4ad4-b5da-75249240aad4)
+![image](https://github.com/kigkali/portafolio-dev/assets/112664542/7c6b9667-f071-4d14-bb2c-27791604f46c)
+
 
 
 
